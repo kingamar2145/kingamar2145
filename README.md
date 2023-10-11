@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kingamar2145
+- 👀 I’m interested in being a web developer
+- 🌱 I’m currently learning computer science
+- 📫 How to reach me : amardioufjobs@gmail.com
